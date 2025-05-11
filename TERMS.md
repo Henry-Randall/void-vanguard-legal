@@ -10,4 +10,4 @@ Letzte Aktualisierung: 12.05.2025
 3. **Änderungen**  
    Wir behalten uns das Recht vor, diese Bedingungen jederzeit zu ändern.  
 4. **Kontakt**  
-   Bei Fragen schreibe an: your.email@example.com
+   Bei Fragen schreibe an: voidvanguard11@gmail.com
