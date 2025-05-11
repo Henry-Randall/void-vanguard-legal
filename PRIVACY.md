@@ -9,4 +9,4 @@ Letzte Aktualisierung: 12.05.2025
 2. **Speicherung**  
    - Es wird nichts gespeichert oder weitergegeben.  
 3. **Kontakt**  
-   - Datenschutzanfragen an: your.email@example.com
+   - Datenschutzanfragen an: voidvanguard11@gmail.com
