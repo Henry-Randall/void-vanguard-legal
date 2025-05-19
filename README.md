@@ -19,7 +19,7 @@ Erreiche den höchsten Score und beweise dich als echter Vanguard-Pilot im All!
 Dieses Spiel wurde mit ❤️ von mir entwickelt, um es in meinen Discord-Server zu integrieren und den offiziellen **Guild Tag** zu beantragen.
 
 ## Discord
-→ [Discord-Server beitreten](https://discord.gg/DEINLINK)
+→ [Discord-Server beitreten](https://discord.gg/TYqdfKaugP)
 
 ---
 
